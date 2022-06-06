@@ -1,2 +1,0 @@
-# bing-bong
-ya momma
